@@ -1,2 +1,1 @@
-# kotakamal23
-Jangan nackal
+live like a man, don't be afraid to fail!
